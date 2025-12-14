@@ -1,1 +1,1 @@
-<img width="1544" height="559" alt="Modux-text-3" src="https://github.com/user-attachments/assets/311e1777-26d9-4a29-8cac-1dd8ef02c434" />
+<img width="1661" height="559" alt="Modux-text-3" src="https://github.com/user-attachments/assets/ec03d4d7-f1c6-4f01-add4-e8079a00f5ec" />
